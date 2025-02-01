@@ -1,2 +1,2 @@
-![Aman_AmanPandey](https://github.com/user-attachments/assets/b047b0fe-0853-498f-9935-affbc512b47d)
+![Aman_AmanPandey]https://gettrendygifs.wordpress.com/2016/02/24/new-trending-gif-tagged-video-steve-jobs-ipod/
   Thats Goddamn Right.....!!!!!
