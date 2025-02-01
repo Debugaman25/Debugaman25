@@ -1,2 +1,3 @@
-![Aman_AmanPandey]https://gettrendygifs.wordpress.com/2016/02/24/new-trending-gif-tagged-video-steve-jobs-ipod/
-  Thats Goddamn Right.....!!!!!
+
+![giphy](https://github.com/user-attachments/assets/1cb8dfa4-d97d-473c-a40a-c0d1bd100f7a)
+ 
